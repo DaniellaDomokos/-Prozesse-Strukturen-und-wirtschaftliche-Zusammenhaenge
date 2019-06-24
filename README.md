@@ -1,4 +1,4 @@
-# Prozesse, Strukturen und wirtschaftlicheZusammenhänge
+# Prozesse, Strukturen und wirtschaftliche Zusammenhänge
 
 Dieser Kapitel behandelt diverse Fragestellungen wirtschaftlicher Natur, sei es Kanzlei- sowie Legal Project Management, Changemanagement und Pricing 
 
